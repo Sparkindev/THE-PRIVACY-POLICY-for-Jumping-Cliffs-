@@ -1,3 +1,3 @@
 # THE-PRIVACY-POLICY-for-Jumping-Cliffs-
-THE PRIVACY POLICY​ for Jumping Cliffs 
-rdfdsfdsf
+THE PRIVACY POLICY for Jumping Clif 
+
